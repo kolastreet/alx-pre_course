@@ -1,1 +1,1 @@
-My first readme , i did this update ^.^
+i did this update ^.^
